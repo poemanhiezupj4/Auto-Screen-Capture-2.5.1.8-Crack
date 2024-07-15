@@ -1,0 +1,1 @@
+# Auto-Screen-Capture-2.5.1.8-Crack
